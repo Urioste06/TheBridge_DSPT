@@ -18,6 +18,6 @@ Información y glosario:
 
 - iraitz.montalban@thebridgeschool.es
 
-**Teacher Assistant**: *Luis Miguel Andújar Baena*
+**Teacher Assistant**: *Luis Miguel Andújar*
 
 - luismiguel.andujar@thebridgeschool.es
